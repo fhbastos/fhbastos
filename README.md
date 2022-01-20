@@ -2,6 +2,8 @@
 
 🌱 I'm currently studying to be a Full Stack Web Developer
 
+👔 Currently working on Accenture Brazil
+
 🙋🏻‍♂️ 29 years 😸 Cat guy 🎮 Gamer
 
 <!---
